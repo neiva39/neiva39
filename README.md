@@ -21,7 +21,7 @@ Você pode me encontrar e entrar em contato comigo via:
 
 **Email**: [neive0009@gmail.com](neive0009@gmail.com)
 
-- **WhatsApp**: [Clique aqui para me chamar no WhatsApp](https://wa.me/5522988324933)
+- **WhatsApp**: [Clique aqui para me chamar no WhatsApp](https://wa.me/55+71988116737)
 😄 Pronomes
 Meus pronomes são ela/dela.
 
